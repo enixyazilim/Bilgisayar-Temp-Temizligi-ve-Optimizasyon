@@ -1,0 +1,1 @@
+# Bilgisayar-Temp-Temizli-i-ve-Optimizasyon
